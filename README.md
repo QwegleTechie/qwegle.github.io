@@ -11,7 +11,7 @@ We specialise in:
 
 Visit our website: [https://www.qwegle.com](https://www.qwegle.com)
 Explore our insights: [https://www.qwegle.com/blog](https://www.qwegle.com/blog)
-See our portfolio: [https://www.qwegle.com/projects](https://www.qwegle.com/projects)
+See our portfolio: [https://www.qwegle.com/projects](https://www.qwegle.com/case-studies)
 
 ---
 
